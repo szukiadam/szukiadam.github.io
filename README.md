@@ -1,0 +1,1 @@
+# szukiadam.github.io
